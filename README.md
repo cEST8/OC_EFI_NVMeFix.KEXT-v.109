@@ -1,3 +1,3 @@
-# how-can-i-have-a-conversation-report-an-issue-to-Acidantera-NVmefix
+# how-can-i-have-a-conversation-report-an-issue-to-Acidantera-NVMeFix
 i kind of understand that is not the propter way, but i don't know how to ask his help.
 so I don't know if show publicly my log, or wait...
