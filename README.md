@@ -1,2 +1,3 @@
 # how-can-i-have-a-conversation-report-an-issue-to-Acidantera-Nvm-efix
-sorry i'm very bad on this, i just hit enter by mistake!
+i kind of understand that is not the propter way, but i don't know how to ask his help.
+so I don't know if show publicly my log, or wait...
